@@ -13,7 +13,7 @@
    - Reporter at Reaksi Saintek
     
     
- #### 2. [SMA N 17 Garut](https://www.sman1kebumen.sch.id) | MIPA | Garut `2019-2022`
+#### 2. [SMA N 17 Garut](https://www.sman1kebumen.sch.id) | MIPA | Garut `2019-2022`
    - Secretary of the Intra School Student Organization
    - Entrepreneurship Staff at the Intra School Student Organization Forum Jawa Barat
 
